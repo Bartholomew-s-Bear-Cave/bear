@@ -1,2 +1,2 @@
 # bear
-this is a bear
+there are many different types of bears in the world. 
